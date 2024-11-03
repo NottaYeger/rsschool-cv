@@ -1,1 +1,1 @@
-https://nottayeger.github.io/rsschool-cv/cv
+https://nottayeger.github.io/rsschool-cv/
